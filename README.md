@@ -1,2 +1,2 @@
 # atividades-digio
-Aqui irei adicionar todas minhas atividades dentro da plataforma da digital inovation one.
+Aqui irei adicionar todas minhas atividades dentro da plataforma digital inovation one.
